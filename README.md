@@ -1,6 +1,6 @@
 ## Bernardo Basaldúa
 
-###Sobre mi
+Sobre mi
 -Legajo: 23-12293
 -Tengo 22 años
 -Soy estudiante de Ingeniería en Sistemas y actualmente estoy cursando 8 materias
