@@ -8,4 +8,4 @@ Sobre mi
 -Mi objetivo es aprender las herramientas necesarias para convertirme en un desarrollador web y poder cumplir otras metas a futuro
 -En mi tiempo libre hago crossfit y otros deportes, salir con amigos
 
-![foto](https://www.google.com.ar/url?sa=i&url=https%3A%2F%2Fconcepto.de%2Fpaisaje-natural%2F&psig=AOvVaw0ZQqzVeT9xMQz2lmC95ppq&ust=1647639858232000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCICM3_2OzvYCFQAAAAAdAAAAABAD)
+![foto Linkedin](https://media-exp1.licdn.com/dms/image/C4D03AQHV_c5Avcgd7g/profile-displayphoto-shrink_800_800/0/1647477959419?e=1652918400&v=beta&t=whe2jL01hZnhFYT_ibfNY4DytvCHScGhYz_cwOFE418)
